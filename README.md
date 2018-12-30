@@ -1,0 +1,2 @@
+# sEGITIGA-Sama-Sisi
+TUGAS UAS 19
